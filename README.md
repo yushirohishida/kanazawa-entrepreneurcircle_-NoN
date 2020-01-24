@@ -1,0 +1,1 @@
+# kanazawa-entrepreneurcircle_yorozuya
